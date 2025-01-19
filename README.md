@@ -1,5 +1,11 @@
 # Depined Auto Ping and Auto Reff
 
+# Proxy can buy Here
+
+### Buy Proxies READ CAREFULLY BEFORE BUY!!!
+- : 
+1. [https://app.proxies.fo](https://app.proxies.fo/ref/2713843d-b22b-dfb8-3351-775d16d245fc)
+
 ![banner](image.png)
 
 ## Features
